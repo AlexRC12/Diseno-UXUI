@@ -1,4 +1,4 @@
-# Diseno-UXUI
+# Diseño-UXUI
 
 
 Estimado profesor a continuación le dejo el link de mi práctica, también le he enviado una invitación para que pueda ingresar.
